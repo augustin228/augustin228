@@ -1,1 +1,1 @@
-Fuck you, i use arhc btw.
+Fuck you, i use bubuntu btw.
