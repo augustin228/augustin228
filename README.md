@@ -1,1 +1,1 @@
-Fuck you, i use bubuntu btw.
+Fuck you, i use bubunta btw.
